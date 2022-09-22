@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding, myths, and  my love.
 - 🌱 I’m currently learning  codings
 - 💞️ I’m looking to collaborate on  time spend
-- 📫 How to reach me my friend
+- 📫 lol 😆😆😆
 
 <!---
 lucifertushar/lucifertushar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
